@@ -9,3 +9,5 @@
 ![8 1](https://github.com/Jafanda/images/assets/134603868/6f866451-1150-4435-bcf9-8df07203f053)
 ![9 0](https://github.com/Jafanda/images/assets/134603868/cfb44fab-6887-47b7-9d8b-173b06fdca5c)
 ![13 0](https://github.com/Jafanda/images/assets/134603868/5a9897c8-cacd-4fcc-9105-0e03ebbe84c6)
+![1 4](https://github.com/Jafanda/images/assets/134603868/8c3fa792-e8ec-4deb-bce1-c5c25c911466)
+![3 1](https://github.com/Jafanda/images/assets/134603868/5540ace8-467a-4011-8107-83547d95c0c7)
